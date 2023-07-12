@@ -1,0 +1,1 @@
+i love korea country and my V is in korea.He is pop singer.His birthday date is dec 30
